@@ -1,2 +1,0 @@
-# MACMAX
-# MACMAX
